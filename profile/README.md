@@ -1,6 +1,8 @@
 ## SEOLIC SEO TOOL
-<!--
 
+🔎 Free SEO online tools from SEOLIC take you to the top.Try your site today to optimize on onpage as offpage and much more with AI inside.
+
+<!--
 **Here are some ideas to get you started:**
 
 🙋‍♀️ A short introduction - what is your organization all about?
